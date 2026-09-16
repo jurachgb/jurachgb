@@ -1,4 +1,4 @@
-## Hi there 👋
+![Apresentação](https://github.com/jurachgb/jurachgb/blob/main/github-neon-wave-banner-custom.gif)
 
 <!--
 **jurachgb/jurachgb** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
