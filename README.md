@@ -66,7 +66,7 @@ Atualmente estou aprimorando minhas habilidades no desenvolvimento de aplicaçõ
 
 ## 📫 Contato
 
-* 💼 LinkedIn: [www.linkedin.com/in/gustavo-balsan-jurach-0608793b4](www.linkedin.com/in/gustavo-balsan-jurach-0608793b4)
+* 💼 LinkedIn: [Gustavo Balsan](https://www.linkedin.com/in/gustavo-balsan-jurach-0608793b4)
 
 ---
 
